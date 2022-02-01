@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **piyushsinha307@gmail.com**
 
-- 📄 Know about my experiences [https://www.dropbox.com/preview/Piyush_Raj_Resume.pdf?role=personal](https://www.dropbox.com/preview/Piyush_Raj_Resume.pdf?role=personal)
+- 📄 Know about my experiences [https://www.dropbox.com/preview/Piyush_Raj_Resume.pdf?role=personal](https://www.piyushrj.tk/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
